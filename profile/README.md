@@ -1,7 +1,7 @@
 # **𝐋𝐨𝐭𝐭𝐞𝐫𝐲 7 𝐈𝐧𝐯𝐢𝐭𝐞 Code** – 4265615473389  
-<a href="https://tirangainvitecode.in/tiranga" target="_blank">
-  <img src="https://img.shields.io/badge/Tiranga%20Invite%20Code-Click%20Here-brightgreen?style=for-the-badge" alt="Tiranga Invite Code Button">
-</a>
+[![Register & Get ₹500 Bonus Now](https://img.shields.io/badge/Register_&_Get_₹500_Bonus_Now-299cf2?style=for-the-badge&logo=google-pay&logoColor=white)](https://tirangainvitecode.in/tiranga)
+
+
 
 Looking for a **head start** in **𝐋𝐨𝐭𝐭𝐞𝐫𝐲 7**? Use **𝐋𝐨𝐭𝐭𝐞𝐫𝐲 7 𝐈𝐧𝐯𝐢𝐭𝐞 Code** `4265615473389` and grab a **₹1500 bonus instantly!** 🎉  
 
